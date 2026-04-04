@@ -9,4 +9,4 @@
 Click here:
 https://www.thalia.de/shop/home/artikeldetails/A1072272105
 
-#PS: Maria Nigro sagte, dass niemand Masterarbeiten kaufe.
+#PS: Eine Diplompsychologin sagte mir, dass niemand Masterarbeiten kaufe. Ich halte das für ein Hirngespinst und wünsche dieser Dame gute Besserung.
